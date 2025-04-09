@@ -46,4 +46,4 @@ You can request that data be deleted by sending an email founded in Contact Us s
 ### Contact Us  
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
 Contact Information:  
-Email: sara.abu.business@gmail.com
+Email: safaa.omer.2020.15@gmail.com
